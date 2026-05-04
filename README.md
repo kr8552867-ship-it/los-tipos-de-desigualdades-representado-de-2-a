@@ -1,0 +1,1 @@
+# los-tipos-de-desigualdades-representado-de-2-a
